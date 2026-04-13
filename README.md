@@ -52,3 +52,13 @@ AI music uses himan musical works to produce its shit and its shit is making mon
 As AI music percentage gets higher and higher, it gains money off human artists but human artists are proportionally less listened to.
 They are not payed for AI listens based on their music and they are no longer paid for their own music because it's drowned behind AI music listens (kilotons are made to drown real music).
 As human musicians incomes plumit, fewer and fewer humans are interested in writing and sharing music for the only benefit of AI.
+
+
+AI will steal your job and your incomes
+---------------------------------------
+
+Extend this reasoning to all arts, and to all jobs.
+AI will use what you have produced in the past to produce its own shit.
+It will not thank you for your efforts.
+It will derivate incomes off you.
+You will lose your job, too, because who needs this or that employee, I can make (steal) it done by IA.
