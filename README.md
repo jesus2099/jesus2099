@@ -58,7 +58,8 @@ AI will steal your job and your incomes
 ---------------------------------------
 
 Extend this reasoning to all arts, and to all jobs.
-AI will use what you have produced in the past to produce its own shit.
-It will not thank you for your efforts.
-It will derivate incomes off you.
-You will lose your job, too, because who needs this or that employee, I can make (steal) it done by IA.
+AI users will use what you have produced in the past to produce their own shit for sale.
+They will not thank you for your efforts, or remunerate you.
+They will derivate incomes off you.
+You will lose your job, too, because who needs this or that employee, they can make (steal) it done by IA.
+
