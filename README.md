@@ -1,4 +1,6 @@
-## Hi there 👋
+# 💀 DESTROY AI
+
+Hi there 👋 
 
 <!--
 **jesus2099/jesus2099** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
