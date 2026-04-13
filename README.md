@@ -15,9 +15,11 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+**AI stands for asshole immoral, or automated and inconsiderate.**
 
-The AI (asshole idiot) systemic problems
-----------------------------------------
+
+The AI systemic threats
+-----------------------
 
 Besides massive and growing pollution:
 
@@ -29,9 +31,22 @@ Pollution is the massively serious sideeffect of AI (asshole idiot)
 Smash human creativity down is the massively serious **desired** effect of AI (asshole idiot)
 
 
-Why AI (asshole idiot)
-----------------------
+Why AI
+------
 
 It’s humans (probably uncreative humans) who create, promote and defend AI.
 Probably greedy humans who have financial interests doing so.
-Of course, one of their first plans is probably to harvest millions of music royalties off streaming platforms in lieu of creator artists by bombing said platforms with thousand uploads everyday.
+But promotion says it's good for us, without citing any convincing examples.
+
+
+Illustration with AI music
+--------------------------
+
+One of their first plans is try to harvest millions of music royalties off streaming platforms in lieu of creator artists by bombing said platforms with thousand uploads everyday.
+
+**And, as AI uses human works, it is but pure and simple theft.**
+
+AI music uses himan musical works to produce its shit and its shit is making money that is kept by AI shit uploaders, stolen from source human musical works.
+As AI music percentage gets higher and higher, it gains money off human artists but human artists are proportionally less listened to.
+They are not payed for AI listens based on their music and they are no longer paid for their own music because it's drowned behind AI music listens (kilotons are made to drown real music).
+As human musicians incomes plumit, fewer and fewer humans are interested in writing and sharing music for the only benefit of AI.
