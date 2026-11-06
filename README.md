@@ -27,18 +27,24 @@ Besides massive and growing pollution:
 
 It inevitably smashes people’s motivation for creativity down, as no public cares or is even able to see the difference… Or, rather even because actual human artistic or craftsmanship efforts are drowned under kilotons of useless generated crap.
 
-But:
-
-Pollution is the massively serious sideeffect of AI (asshole idiot)
+Pollution is the massively serious side effect of AI
 Smash human creativity down is the massively serious **desired** effect of AI (asshole idiot)
 
 
 Why AI
 ------
 
-It’s humans (probably uncreative humans) who create, promote and defend AI.
+Some nerds create, promote and defend AI.
 Probably greedy humans who have financial interests doing so.
-But promotion says it's good for us, without citing any convincing examples.
+Their promotion says AI is good for us, without citing any convincing examples.
+
+
+AI sucks
+--------
+
+- ☢️ AI is a thrat for planet: It is mass-polluting the planet with its dramatic energy consumption
+- 🔥 AI is a threat for society: It increases unemployment caused by IT
+- 🗑️ AI is a threat for humans: With its generic dull and wrong production, it is steadily increasing stupidity in human brains who become even more unable to think than before
 
 
 Illustration with AI music
