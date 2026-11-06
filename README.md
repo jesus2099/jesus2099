@@ -17,8 +17,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-**AI stands for asshole immoral, or automated and inconsiderate.**
-
 
 The AI systemic threats
 -----------------------
@@ -27,15 +25,15 @@ Besides massive and growing pollution:
 
 It inevitably smashes people’s motivation for creativity down, as no public cares or is even able to see the difference… Or, rather even because actual human artistic or craftsmanship efforts are drowned under kilotons of useless generated crap.
 
-Pollution is the massively serious side effect of AI
-Smash human creativity down is the massively serious **desired** effect of AI (asshole idiot)
+Pollution is the massively serious side effect of AI.
+Smash human creativity down is the massively serious **desired** effect of AI.
 
 
 Why AI
 ------
 
 Some nerds create, promote and defend AI.
-Probably greedy humans who have financial interests doing so.
+Probably greedy humans who have financial interests doing so. Because otherwise, it is only bad news.
 Their promotion says AI is good for us, without citing any convincing examples.
 
 
@@ -67,5 +65,5 @@ Extend this reasoning to all arts, and to all jobs.
 AI users will use what you have produced in the past to produce their own shit for sale.
 They will not thank you for your efforts, or remunerate you.
 They will derivate incomes off you.
-You will lose your job, too, because who needs this or that employee, they can make (steal) it done by IA.
+You will lose your job, too, because who needs this or that employee, they can make (steal) it with AI.
 
