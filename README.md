@@ -40,7 +40,7 @@ Their promotion says AI is good for us, without citing any convincing examples.
 AI sucks
 --------
 
-- ☢️ AI is a thrat for planet: It is mass-polluting the planet with its dramatic energy consumption
+- ☢️ AI is a threat for planet: It is mass-polluting the planet with its dramatic energy consumption
 - 🔥 AI is a threat for society: It increases unemployment caused by IT
 - 🗑️ AI is a threat for humans: With its generic dull and wrong production, it is steadily increasing stupidity in human brains who become even more unable to think than before
 
